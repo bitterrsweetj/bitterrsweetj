@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Elya!
+- 👋 Hi, I’m Elvira!
 - 👀 I’m interested in coding, learning foreign languages, reading and drawing.
 - 🌱 I’m currently learning JavaScript.
 - 📫 Feel free to reach me via ✨[instagram](https://www.instagram.com/bitterrsweetj)✨
